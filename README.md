@@ -1,4 +1,3 @@
-![IMG-20240906-WA0003](https://github.com/user-attachments/assets/f689a8af-e4a6-4332-913f-1f222891a738)
 
 ![IMG-20240906-WA0008](https://github.com/user-attachments/assets/93af1c0f-1660-4689-81f3-97ca5bb8a807)
 
